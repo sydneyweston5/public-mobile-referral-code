@@ -1,2 +1,1 @@
-# public-mobile-referral-code
-Public Mobile referral code: KYN532
+# Public Mobile referral code: KYN532
